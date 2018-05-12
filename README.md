@@ -1,0 +1,1 @@
+# chodovaplana.pirati.cz
